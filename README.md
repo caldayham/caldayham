@@ -3,4 +3,4 @@ Optimism because pessimism is not an option.
 
 Effectiveness, efficiency, low time preference.
 If there is an end, I'm sure as anything not planning for it.  
-Understanding is the purpose.
+The purpose is maximizing ones ability, or maybe understanding, possibly maximizing desired results, or something else, but they are all related.
